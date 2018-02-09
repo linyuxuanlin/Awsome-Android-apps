@@ -1,2 +1,1 @@
-原文链接：[Android 是否有一些冷门但却逆天的 APP 呢？](https://www.zhihu.com/question/55701954/answer/206897063)
-待更新~
+[逆天的安卓APP分享](https://resources.radiastu.com/2018/02/09/awsome-android-apps/)
